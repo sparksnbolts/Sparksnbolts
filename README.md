@@ -1,16 +1,15 @@
-## Hi there 👋
 
-<!--
-**sparksnbolts/Sparksnbolts** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Ronin / Boothill
 
-Here are some ideas to get you started:
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ He / doll . agender . ISFP     𔗫  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ͡♡𝅼 𓎢𓎟 ͜ ۪۪۪ dni : hazbin/helluva community, pedos, basic criteria ꔫ ⠀
+
+‎ ‎ ‎ ‎ ‎ ‎ 
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 𓎢𓎟𓎡 . Be free to talk to me or sit with me!  (❁´◡`❁)
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‿ non-sharing shipper of Boothill & Akutagawa !  :: DOUBLES DNI DNI DNI 
+
+‎ ‎ ‎ <img width="1280" height="566" alt="image" src="https://github.com/user-attachments/assets/43e47f20-a3f5-4574-b148-e0fede447a47" />
+
