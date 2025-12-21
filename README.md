@@ -1,7 +1,7 @@
 
 Ronin / Boothill
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ He / doll . agender . ISFP     𔗫  
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ He / doll . agender . ISTP     𔗫  
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ͡♡𝅼 𓎢𓎟 ͜ ۪۪۪ dni : hazbin/helluva community, pedos, basic criteria ꔫ ⠀
 
